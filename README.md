@@ -1,2 +1,0 @@
-# teramapa.com
-teramapa.com
